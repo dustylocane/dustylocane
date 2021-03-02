@@ -20,7 +20,7 @@
     	:dizzy:
   
 <p align="center">  
-  <img src="https://cdn.discordapp.com/attachments/793783400757592065/815459340198740018/DA2B24FB-AC6B-4618-BC8A-116B566BA6DA.jpeg" alt="fax">
+  <img src="https://cdn.discordapp.com/attachments/793783400757592065/815459318912385064/30815D69-0B4A-4A90-AE03-E1261C9C696B.jpeg" alt="fax">
 </p>
 
 <p align="center">  
